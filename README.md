@@ -1,1 +1,0 @@
-# apdulkareemisaleban-svg.github.io-
